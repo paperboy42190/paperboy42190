@@ -1,5 +1,4 @@
 ### Hi there 👋
-Here are some ideas to get you started:
 
 - 🔭 I’m currently working on my BS in Mechanical Engineering.
 - 💬 Ask me about modifying cars and renovating houses.
